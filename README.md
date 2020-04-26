@@ -1,2 +1,0 @@
-# Bonstri
-JANGAN SERAKAH
